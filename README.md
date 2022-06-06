@@ -1,1 +1,1 @@
-# www.paradoxpoint.pk
+paradoxpoint
